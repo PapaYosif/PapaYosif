@@ -1,5 +1,5 @@
 - sup man im PapaYosif
-- i dont know how u found my profile as i dont have any public projects going on
+- i dont know how u found my profile as i dont have many public projects going on
 - if u wanna reach me for some reason: discord -> !PapaYosif!¡#3919
 - goodluck
 <!---
